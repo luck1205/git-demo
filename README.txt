@@ -3,4 +3,33 @@
 :wq
 
 
-明
+adzcas
+adxzcasd
+asdzxc
+w
+
+:
+wqeq
+qwe
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+:wq
